@@ -4,6 +4,8 @@
 
 $${\color{#E2DECD}❛❛ㅤYouㅤtoyedㅤwithㅤmeㅤallㅤyouㅤwantedㅤbackㅤthenㅤ❜❜}$$
 
+![](https://komarev.com/ghpvc/?08clipse&color=A42931&style=flat-square&label=subordinates)
+
 <p align="center">
     <img src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%204.png" width="200">
 </p>
