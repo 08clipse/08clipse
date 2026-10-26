@@ -4,7 +4,7 @@
 
 $${\color{#E2DECD}❛❛ㅤYouㅤtoyedㅤwithㅤmeㅤallㅤyouㅤwantedㅤbackㅤthenㅤ❜❜}$$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=08clipse&color=A42931&style=flat-square&label=subordinates&abbreviated=true&base1468)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=08clipse&color=A42931&style=flat-square&label=subordinates&abbreviated=true&base1468)
 
 <p align="center">
     <img src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%204.png" width="200">
