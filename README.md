@@ -4,7 +4,7 @@
 
 $${\color{#DBDBDB}❛❛ㅤIsㅤthereㅤreallyㅤanyㅤvalueㅤtoㅤthisㅤthingㅤweㅤcallㅤliving?ㅤ❜❜}$$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=08clipse&color=151117&style=flat-square&label=subordinates&abbreviated=true&base1468)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=08clipse&color=7D0F24&style=flat-square&label=subordinates&abbreviated=true&base1468)
 
 ㅤ
 
