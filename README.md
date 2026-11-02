@@ -10,7 +10,7 @@ $${\color{#DBDBDB}❛❛ㅤIsㅤthereㅤreallyㅤanyㅤvalueㅤtoㅤthisㅤthing
 
 <img align="right" src="https://file.garden/alqzWtqplE9QfqIP/tumblr_99ebf20906089c2ac7519596bf71b92c_64a9d732_250.png" alt="image" width="200" />
 
-$${\color{#B4B0B6}͜𓏼✚ㅤdazaiㅤ﹒ㅤorㅤ﹒ㅤmilesㅤ੭}$$
+$${\color{#B4B0B6}͜𓏼✚ㅤdazaiㅤorㅤmilesㅤ੭}$$
 
 $${\color{#7F7B80}╋━ㅤINTPㅤ﹑ㅤp-didㅤsysㅤ﹐ㅤ16ㅤbodily}$$
 
