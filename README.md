@@ -14,7 +14,7 @@ $${\color{#B4B0B6}͜𓏼✚ㅤdazaiㅤorㅤmilesㅤ੭}$$
 
 $${\color{#7F7B80}╋━ㅤI/ENTPㅤ﹑ㅤdazaiㅤc-linkㅤ﹐ㅤ16ㅤbodily}$$
 
-$${\color{#44000B}ㅤ♡⏝ㅤreadㅤstrawㅤ𓈒ㅤsignㅤataㅤ౨ৎ}$$
+$${\color{#7D0F24}ㅤ♡⏝ㅤreadㅤstrawㅤ𓈒ㅤsignㅤataㅤ౨ৎ}$$
 
 ㅤ
 
