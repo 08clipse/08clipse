@@ -12,7 +12,7 @@ $${\color{#DBDBDB}❛❛ㅤIsㅤthereㅤreallyㅤanyㅤvalueㅤtoㅤthisㅤthing
 
 $${\color{#B4B0B6}͜𓏼✚ㅤdazaiㅤorㅤmilesㅤ੭}$$
 
-$${\color{#7F7B80}╋━ㅤI/ENTPㅤ﹑ㅤdazai c-linkㅤ﹐ㅤ16ㅤbodily}$$
+$${\color{#7F7B80}╋━ㅤI/ENTPㅤ﹑ㅤdazaiㅤc-linkㅤ﹐ㅤ16ㅤbodily}$$
 
 $${\color{#646067}ㅤ♡⏝ㅤreadㅤstrawㅤ𓈒ㅤsignㅤataㅤ౨ৎ}$$
 
