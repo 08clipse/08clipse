@@ -1,43 +1,23 @@
 <p align="center">
-    <img src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%201.png">
+    <img src="https://file.garden/alqzWtqplE9QfqIP/tumblr_474c219b5b5ed85783a759538aa45e9b_06ccc705_400.webp">
 </p>
 
-$${\color{#E2DECD}❛❛ㅤYouㅤtoyedㅤwithㅤmeㅤallㅤyouㅤwantedㅤbackㅤthenㅤ❜❜}$$
+$${\color{#B4B0B6}❛❛ㅤIsㅤthereㅤanyㅤvalueㅤtoㅤthisㅤthingㅤweㅤcallㅤliving?ㅤ❜❜}$$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=08clipse&color=A42931&style=flat-square&label=subordinates&abbreviated=true&base1468)
-
-<p align="center">
-    <img src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%204.png">
-</p>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=08clipse&color=151117&style=flat-square&label=subordinates&abbreviated=true&base1468)
 
 ㅤ
 
-$${\color{#BCB1B7}𓏏𓏏ㅤmilesㅤorㅤdazaiㅤ♡ॱ𓏽}$$
-$${\color{#A46C67}‿‿ㅤsysㅤ˶ㅤ6teenㅤbodilyㅤ಄}$$
-$${\color{#A42931}╰ㅤdazaiㅤc-linkㅤandㅤchuuyaㅤyumeshipperㅤ﹏}$$
+<img align="right" src="https://file.garden/alqzWtqplE9QfqIP/tumblr_99ebf20906089c2ac7519596bf71b92c_64a9d732_250.png" alt="image" width="200" />
 
-ㅤ
+$${\color{#B4B0B6}͜𓏼✚ㅤdazaiㅤ﹒ㅤorㅤ﹒ㅤmilesㅤ“(ノ _ <,, )}$$
 
-<img align="right" src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%206.png" alt="image" />
+$${\color{#7F7B80}╋━ㅤINTPㅤ﹑ㅤp-didㅤsysㅤ﹐ㅤ16ㅤbodily}$$
 
-$${\color{#BCB1B7}     ftm   ﹒   gay   ﹒   aroflux}$$
-
-$${\color{#A46C67}     INTP   ﹑      29/05  ﹐   gemini}$$
-
-$${\color{#A42931}     ♡⏝　 readㅤstrawㅤ𓈒ㅤsignㅤataㅤ౨ৎ}$$
-
-ㅤ
-
-<img align="left" src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%207.png" alt="image" />
-
-$${\color{#BCB1B7}     mostlyㅤofftab   ﹒   w2i}$$
-
-$${\color{#A46C67}     doㅤnotㅤcopyㅤmyㅤskins}$$
-
-$${\color{#A42931}     graphicㅤcredsㅤ=ㅤ@vodyamiutsaㅤonㅤtumblr}$$
+$${\color{#151117}ㅤ♡⏝ㅤreadㅤstrawㅤ𓈒ㅤsignㅤataㅤ౨ৎ}$$
 
 ㅤ
 
 <p align="center">
-    <img src="https://file.garden/alqzWtqplE9QfqIP/chuuya%20theme%209.png">
+    <img src="https://file.garden/alqzWtqplE9QfqIP/tumblr_9e4cc6fa5c41ba19ef30bd871818eac6_1aaa79c2_400.webp">
 </p>
