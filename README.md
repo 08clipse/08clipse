@@ -2,7 +2,7 @@
     <img src="https://file.garden/alqzWtqplE9QfqIP/tumblr_474c219b5b5ed85783a759538aa45e9b_06ccc705_400.webp">
 </p>
 
-$${\color{#B4B0B6}❛❛ㅤIsㅤthereㅤanyㅤvalueㅤtoㅤthisㅤthingㅤweㅤcallㅤliving?ㅤ❜❜}$$
+$${\color{#DBDBDB}❛❛ㅤIsㅤthereㅤanyㅤvalueㅤtoㅤthisㅤthingㅤweㅤcallㅤliving?ㅤ❜❜}$$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=08clipse&color=151117&style=flat-square&label=subordinates&abbreviated=true&base1468)
 
